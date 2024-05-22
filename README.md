@@ -1,4 +1,4 @@
-# Hi, Bruno here🖖👋
+# Hi, welcome to my portfolio!
 
 ## I'm studying Industrial and Food Engineer and I love to work with data! 
 
